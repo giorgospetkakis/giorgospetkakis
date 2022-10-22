@@ -1,4 +1,4 @@
-I'm Giorgos. CS and AI background working at Unity Technologies. Also a writer.
+Software Engineer @unity -- Computer Scientist, Cognitive Scientist, Philosophy Hobbyist. Climate | Writing | Games | Improv 🏳️‍🌈
 
 
 <!---
