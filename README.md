@@ -1,4 +1,8 @@
-Software Engineer @Unity-Technologies -- Computer Scientist, Cognitive Scientist, Philosophy Hobbyist. Climate | Writing | Games | Improv 🏳️‍🌈
+Software Engineer @Unity-Technologies -- 
+
+Computer Scientist, Cognitive Scientist, Philosophy Hobbyist. 
+
+Climate | Writing | Games | Improv 🏳️‍🌈
 
 
 
