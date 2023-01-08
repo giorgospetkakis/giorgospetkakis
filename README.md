@@ -1,4 +1,4 @@
-Software Engineer @Unity-Technologies -- 
+Software Engineer @unity
 
 Computer Scientist, Cognitive Scientist, Philosophy Hobbyist. 
 
